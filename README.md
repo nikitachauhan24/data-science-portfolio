@@ -7,7 +7,7 @@ nikitac@berkeley.edu
 Master in Data Science (in progress - expected December 2024)
 Bachelor in Cognitive Science (Class of 2023)
 
-Univeristy of California, Berkeley
+University of California, Berkeley
 
 Coursework Completed:
 
