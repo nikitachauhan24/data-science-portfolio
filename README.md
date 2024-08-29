@@ -1,6 +1,8 @@
 
 🎓 Master in Data Science (Expected December 2024)
+
 🎓 Bachelor in Cognitive Science (Class of 2023)
+
 🏫 University of California, Berkeley
 
 
